@@ -1,3 +1,3 @@
 
 🍣一位很爱干饭的程序员
-<a title="Hits" target="_blank" href="https://github.com/pingan8787/pingan878"></a>
+🎽同时也是跑步爱好者（正常朝着参加半马努力中）
